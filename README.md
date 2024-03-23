@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil Evandro141 😁
+## Bem-vindo(a) ao perfil Evandro141 
 
  <div>
    <a href="https://github.com/Evandro141">
